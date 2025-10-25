@@ -1,5 +1,3 @@
-# Billy Maina
-
 Hi there 👋
 
 Data Analyst with strong analytical and problem-solving skills, combining technical expertise with a passion for meaningful impact.  
