@@ -14,4 +14,4 @@ A considerable part of my journey involves exploring **Data Science**, **AI**, a
 Ask me about Data Analysis, Visualization, and using Data Science for social impact. 
 
 ---
-Let’s Connect: [Email](billymaina25@gmail.com), [LinkedIn](www.linkedin.com/in/billy-maina-680bbb360) 
+Let’s Connect: [Email me](billymaina25@gmail.com), [LinkedIn](www.linkedin.com/in/billy-maina) 
