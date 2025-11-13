@@ -1,6 +1,6 @@
 Hi there 👋
 
-Data Analyst with strong analytical and problem-solving skills, combining technical expertise with a passion for meaningful impact.  
+I'm a Data Analyst with strong analytical and problem-solving skills, combining technical expertise with a passion for meaningful impact.  
 
 I work collaboratively to turn data into actionable insights that drive smarter decisions and community growth.
 
